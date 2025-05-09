@@ -1,2 +1,2 @@
 # former-projects
-Former projects I take pride in
+Former project. In progress!
